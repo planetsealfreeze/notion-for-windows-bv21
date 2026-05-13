@@ -1,4 +1,4 @@
-# 
+# automatic Notion for Windows Helper | dark-mode + templates offers the most advanced Notion for Windows helper, with dark-mode and templates. Ideal for Windows professionals.
 
 
 
